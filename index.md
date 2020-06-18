@@ -7,6 +7,8 @@ Nachdem De Niro in Hexenkessel überzeugt hatte, gab ihm Regisseur Francis Ford 
 * Wie ein wilder Stier
 * Mission
 
-Robert De Niro sagt:
+Robert De Niro sagte:
 > I don't like to watch my own movies - 
 > I fall asleep in my own movies.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/ef/RobertdeNiro26.JPG/220px-RobertdeNiro26.JPG"/>

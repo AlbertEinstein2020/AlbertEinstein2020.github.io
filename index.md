@@ -6,3 +6,7 @@ Nachdem De Niro in Hexenkessel überzeugt hatte, gab ihm Regisseur Francis Ford 
 * Der Pate II
 * Wie ein wilder Stier
 * Mission
+
+Robert De Niro sagt:
+> I don't like to watch my own movies - 
+> I fall asleep in my own movies.
